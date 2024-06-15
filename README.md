@@ -1,3 +1,3 @@
-#Complete Blog
+Complete Blog
 
-###Visit this fuelbyvk.blogspot.com
+Visit this fuelbyvk.blogspot.com
